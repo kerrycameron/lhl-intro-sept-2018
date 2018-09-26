@@ -1,5 +1,5 @@
 # Kerry Cameron
-
+![Picture of Jen](https://www.facebook.com/photo.php?fbid=10157546971194619&l=062698f592)
 
 ## I was born in...
 Duncan
